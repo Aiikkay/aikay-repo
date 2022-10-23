@@ -9,3 +9,4 @@ lets make some cash.
 like seriously
 me i am not understanding sha
 because
+I thank God for life
